@@ -1,2 +1,0 @@
-# SEPTEM SERMONES
-
